@@ -1,3 +1,3 @@
-nebula has 3 moons
+nebula has 2 moons
 wimas
 Rhea
